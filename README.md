@@ -1,1 +1,4 @@
 # COMMANDS
+vjerjfhjk
+bnkjbf
+jcjjsnllkrhflhk
